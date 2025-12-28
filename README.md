@@ -1,25 +1,16 @@
-![photo](https://files.catbox.moe/wqiftw.png)
-ʚɞ   FOR.AS.LONG.AS.I.FUNCTION.
-
-I.WILL.BE.HER.PROBLEM.
-
-NOT.YOU.   ![photo](https://files.catbox.moe/nmisyo.gif)
+![photo](https://files.catbox.moe/ieow9f.png)
 
 
+![photo](https://files.catbox.moe/z7ai0x.gif)
 
-![photo](https://files.catbox.moe/gkg2wf.png)
 
-⋆˙⟡    𝑨ngel . 𝑴ia  ![photo](https://files.catbox.moe/i5mxun.gif)
+   "i forgive you. "   
+			🪓 
+ Andrew.  ![photo](https://files.catbox.moe/sjb3jp.gif)
 
-![photo](https://files.catbox.moe/hm6tnl.gif)
 
-she / it  ᛝ  
 
-![photo](https://files.catbox.moe/cy8562.gif)
+![photo](https://files.catbox.moe/i2xxcd.jpeg)
 
-------------
 
- .𖥔 ݁ ˖ "1x1's wife" !! multiyumeshipper ^_^   ![photo](https://files.catbox.moe/phuxcq.gif)
-  
-
- ![photo](https://files.catbox.moe/im7y1q.png)
+   ![photo](https://files.catbox.moe/yhwo04.png)
