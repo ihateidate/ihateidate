@@ -1,11 +1,11 @@
-<img width="430" height="20" alt="Image" src="https://github.com/user-attachments/assets/13beae2e-fa62-414c-9c7e-49f4430e43ca" />
+<img width="1280" height="91" alt="Image" src="https://github.com/user-attachments/assets/e68d34ec-7d55-45a3-a737-d77cbfb8e859" />
+<img width="2048" height="2048" alt="Image" src="https://github.com/user-attachments/assets/ad3dbfaf-6a6f-415b-af15-7850a9dd4663" />
 
-<img width="670" height="580" alt="Image" src="https://github.com/user-attachments/assets/a6a59031-8bb0-46e0-ae7e-567552f03970" />
+ <img width="99" height="56" alt="Image" src="https://github.com/user-attachments/assets/d6c84de8-87aa-4eab-98a6-3a8f76c46c18" />⠀<img width="99" height="56" alt="Image" src="https://github.com/user-attachments/assets/a4c90891-f6fc-458c-941b-b446434d6be1" /> ⠀ 
+ [ata](https://meqoutt.atabook.org) ✦ [strawpage](https://cookiesyums1.straw.page) ⠀⠀ 
+ <img width="30" height="30" alt="Image" src="https://github.com/user-attachments/assets/80871eaf-067a-4368-ab80-b7c2e27f95dc" />
 
- ⠀ ⠀ ⠀⠀ ⠀<img width="20" height="20" alt="Image" src="https://github.com/user-attachments/assets/c8e9452e-8838-48f8-a26c-28bc484ceb0b" /> ⠀⠀  [ata](https://meqoutt.atabook.org) ✦ [strawpage](https://cookiesyums1.straw.page) ⠀⠀ 
- <img width="20" height="20" alt="Image" src="https://github.com/user-attachments/assets/8205a5fb-0b0b-49c4-9047-7148a248354a" />
-
-<img width="430" height="20" alt="Image" src="https://github.com/user-attachments/assets/13beae2e-fa62-414c-9c7e-49f4430e43ca" /> ⠀ ⠀ ⠀⠀ ⠀
+<img width="1278" height="96" alt="Image" src="https://github.com/user-attachments/assets/18e03013-45d2-461f-a911-1666c151c271" />
 
 ⠀ ⠀ ⠀⠀  14  ⠀ ⠀ ⠀⠀ ⠀ilmbf ^_^   check le strawpage  ⠀ ⠀ ⠀for more info about me !!
  
