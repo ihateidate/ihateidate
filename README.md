@@ -1,5 +1,5 @@
 <img width="1280" height="91" alt="Image" src="https://github.com/user-attachments/assets/e68d34ec-7d55-45a3-a737-d77cbfb8e859" />
-<img width="2048" height="2048" alt="Image" src="https://github.com/user-attachments/assets/ad3dbfaf-6a6f-415b-af15-7850a9dd4663" />
+<img width="650" height="650" alt="Image" src="https://github.com/user-attachments/assets/ad3dbfaf-6a6f-415b-af15-7850a9dd4663" />
 
  <img width="99" height="56" alt="Image" src="https://github.com/user-attachments/assets/d6c84de8-87aa-4eab-98a6-3a8f76c46c18" />⠀<img width="99" height="56" alt="Image" src="https://github.com/user-attachments/assets/a4c90891-f6fc-458c-941b-b446434d6be1" /> ⠀ 
  [ata](https://meqoutt.atabook.org) ✦ [strawpage](https://cookiesyums1.straw.page) ⠀⠀ 
